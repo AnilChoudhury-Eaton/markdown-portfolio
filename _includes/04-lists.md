@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+I ❤️ Pizza
+I 👍 your shirt
+you are funny 😄
+You are a sparkler 🎇
+🎉
